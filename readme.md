@@ -1,1 +1,1 @@
-"# Mening kundaligim " 
+"- jami 12 oquvchi qatnashdi" 
